@@ -1,6 +1,6 @@
-# Piszczuux.github.io
 
-**Piszczuux**
+
+**Julia Bączkowska**
 
 Doświadczenie: 
 **Programowanie komputerów**\
